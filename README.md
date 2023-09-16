@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @xXkris666Xx
+- 👀 I’m interested in new projects and learning opportunities
+- 🌱 I’m currently learning foundations of algorithms, data structures and other basic things for programing in general
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me:
+- iagojacob11@gmail.com (my e-mail)
